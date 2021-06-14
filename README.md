@@ -7,4 +7,4 @@ Wazzup pipols!
 science student from ISAT University.” 
 
 My hobbies are playing video games, surfing the internet
-And listening to music.
+and listening to music.
